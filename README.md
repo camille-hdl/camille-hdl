@@ -7,6 +7,6 @@ If you're the reading type, you can find [📝 blog posts here](https://camilleh
 
 If you'd like a distraction, check out [📷 my photography](https://www.flickr.com/people/camille_hodoul/), it would mean a lot 🙂
 
-You can reach me on twitter or at camilleh@hey.com
+You can reach me on twitter, @camilleh.bsky.social or at camilleh@hey.com
 
 Thank you for stopping by, have a nice day 👋
